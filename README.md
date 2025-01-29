@@ -5,7 +5,7 @@
   
 💡 Passionate about learning, creating responsive web applications, and building impactful user interfaces
   
-📌 Check out my **CV** to learn more about my experience and projects:  [ My CV](https://drive.google.com/file/d/11pLv9RfwSuC3gQ53PAI27qF1ArRk3T25/view?usp=sharing)
+📌 Check out my **CV** to learn more about my experience and projects:  [ My CV](https://drive.google.com/file/d/1QwLA4_ch-40OUZQMtz05rXkwDxZ58fmp/view?usp=sharing)
 
 
 <div >
